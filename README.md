@@ -5,7 +5,6 @@
 
 📧 brunomateusbo60@gmail.com
 
-🔗 [LinkedIn](https://www.linkedin.com/in/bruno-mateus248/)
 
 🐙 [GitHub](https://github.com/bruno-mateus248)
 
